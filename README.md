@@ -32,7 +32,7 @@
 
 📫 **Let's Connect**
 
-- 🔗 [LinkedIn]([https://www.linkedin.com/in/your-linkedin](https://www.linkedin.com/in/harsh-sharma-685391295/))  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/your-linkedin](https://www.linkedin.com/in/harsh-sharma-685391295/))  
 - ✉️ Email:   work.harshsharma.07@gmail.com
 
 ---
